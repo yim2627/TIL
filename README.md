@@ -13,3 +13,4 @@ Today I Learned 🐤
 
 **한숨섞인.. 말말말...**
 
+[블로그](https://velog.io/@yim2627)에도 기록합니다 🔥
